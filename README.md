@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Duriatt
+- 👀 I’m interested in paleontology. ( ͡° ͜ʖ ͡°)
+- 🌱 I’m currently learning python.
+- 📫 How to reach me? I don’t know...
